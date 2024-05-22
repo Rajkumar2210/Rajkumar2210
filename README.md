@@ -7,9 +7,9 @@
 
 - 💬 Ask me about **HTML,CSS,Javascript and problem solving techniques.**
 
-- 📫 How to reach me **rajkumarkrr@gmail.com**
+- 📫 How to reach me **s.rajkumarkrr@gmail.com**
 
-- 📄 Know about my experience through [https://drive.google.com/file/d/1ITjF4i7IYh9mo6_yY899rMNJIyiV64Zr/view?usp=drive_link](https://drive.google.com/file/d/1ITjF4i7IYh9mo6_yY899rMNJIyiV64Zr/view?usp=drive_link)
+- 📄 Know about my experience through [https://drive.google.com/file/d/1ITjF4i7IYh9mo6_yY899rMNJIyiV64Zr/view?usp=drive_link](https://docs.google.com/document/d/1_0p0NN3FzsQQyx8SmwXi2FVL7jMKdUYnnzp1OkbZwyo/edit?usp=sharing)
 
 <h3 align="center">Connect with me:</h3>
 <p align="center">
